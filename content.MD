@@ -1,2 +1,1 @@
-Por favor vayan a dormir!
-ZZZ zzz
+Ophelia is a character in William Shakespeare's drama Hamlet (1599–1601). She is a young noblewoman of Denmark, the daughter of Polonius, sister of Laertes and potential wife of Prince Hamlet. Due to Hamlet's actions, Ophelia ultimately becomes mad and drowns.
